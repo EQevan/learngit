@@ -1,1 +1,1 @@
-Create a new branch is quick and fast
+Create a new branch is quick and cheap
